@@ -1,0 +1,4 @@
+#### The Greeks invented heating systems for public baths in the 1st century BC, but interestingly enough, many Greeks chose to continue bathing in cold water due to the health benefits. Takind cold showers is a hormetic stressor. Essentially hormetic stress is healthy stress like lifting weight, running, or any other physical activity. 
+
+#### Increases Alertness
+##### deep breathing in response to our body’s shock helps us keep warm, as its increases our overall oxygen intake. Thus, our heart rate will also increase, releasing a rush of blood through our entire body. This gives us a natural dose of energy for the day.
