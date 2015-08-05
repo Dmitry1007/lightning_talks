@@ -19,7 +19,7 @@ Your lymphatic system carries waste away from your cells to help you fight disea
 Hot water has the tendency to dry out our skin. That's why many people who are dependent on hot showers also depend on moisturizers. Cold water keeps your pores and cuticles tight, which leads to a better complection and shiner hair.
 
 #### Decreases Inflamation
-Why do you think athletes from pretty much every sport put ice packs on their aching joins and even sit in ice cold tubs for up to 10min? Cold does two things to your body: It decreases inflamation and increases circulation. When you're system is flushed with nutrient rich blood, muscle and tendons begin to repair themselves.  
+Why do you think athletes from pretty much every sport put ice packs on their aching joins and even sit in ice cold tubs for up to 10min? Cold does two things to your body: It decreases inflamation and increases circulation. When you're system is flushed with nutrient rich blood, muscle and tendons begin to repair themselves.
 
 #### Releives Stress
 Cold showers can stimulate noradrenaline secretion in the brain, which is associated with improving mood disorders like depression. Taking a cold shower sends an overwhelming amount of electrical impulses from peripheral nerve endings to the brain, which can result in an anti-depressive effect. [link](http://www.ncbi.nlm.nih.gov/pubmed/17993252)
@@ -27,5 +27,5 @@ Cold showers can stimulate noradrenaline secretion in the brain, which is associ
 #### Energy Increase
 When you jump into a cold shower, the nerve endings in your skin start to fire. Your heart starts racing and you start breathing rapidly as your body adjusts. That’s a response that the best cup of coffee in the world can’t beat.
 
-#### Inner Strenght 
+#### Inner Strenght
 Besides the biological health benefits of taking cold showers, there's also a powerful psycological aspect. Becoming comfortable in an uncomfortable setting prepares us for many of lifes challenges. I challenge you to expose yourself to 5-min of healthy uncomfort every day and I bet it's going to seep into other aspects of your life. By choosing to inflict dis-comfot upon yourself every day, we become more gritty and less wimpy and fragile.
